@@ -1,1 +1,1 @@
-# GameZam
+![스크린샷 2023-09-04 오후 2 08 34](https://github.com/Mings1027/GameZam/assets/100500113/36fd0e3b-9b80-4323-bfeb-473bf2ede5d6)
